@@ -53,6 +53,6 @@
 
 - [LinkedIn](https://www.linkedin.com/in/prachi-bhandari-149a402a5/)
 - [GitHub](https://github.com/prachibhandari)
-- 📧 prachibhandari.cs@gmail.com
+- 📧 er.prachibhandari2110@gmail.com
 
 ---
